@@ -1,1 +1,1 @@
-# insight-Innovators
+# Insight-Innovators
